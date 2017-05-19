@@ -1,2 +1,9 @@
 # hello-world
-hello world!! :D
+
+
+aaaaa tak się kurna bawię!!!!
+
+# nudzi mi sie!!!!
+
+
+aaaaaaaaaaaaaaaaaaaaaA!!!!!
